@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MuhammadAzizPangestu
+- 👀 I’m interested in Big Data Analyst 
+- 🌱 I’m currently learning Data Science
+- 💞️ I’m looking to collaborate on your team
+- 📫 You can contact me via LinkedIn
+- 😄 Pronouns: Aziz
+- ⚡ Fun fact: I like football
